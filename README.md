@@ -1,0 +1,1 @@
+The purpose of this website is to reach authorized source for Authentic handwoven Chanderi sarees, sourced directly from the weaving families of Chanderi, Madhya Pradesh. GI Tagged. Ethically sourced.
